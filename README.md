@@ -1,0 +1,2 @@
+# SAMSUNG
+IT school
